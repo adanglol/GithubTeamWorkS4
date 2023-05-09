@@ -2,4 +2,4 @@
 
 Section Week 4 Activty 
 
-By Aaron Dangc and _________  <----- (Your Name here)
+By Aaron Dangc and Anthony Molle  <----- (Your Name here)
